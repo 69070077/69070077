@@ -1,4 +1,6 @@
 # AYo I'm Thanawat Panthaplin
 ## About Me
-      #### 
-      #### Freshy KMITL
+    -JubJub
+    -Freshy KMITL
+    -lnWZaa007   
+  
